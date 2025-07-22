@@ -9,4 +9,4 @@
 
 
 
-[rentry](https://rentry.co/eun-chann) ﾒ [pronounscc](https://pronouns.cc/@SILENTHILL) ﾒ [ata](https://maccieee.atabook.org/)
+[rentry](https://rentry.co/maxstrangerthings) ﾒ [pronounscc](https://pronouns.cc/@SILENTHILL) ﾒ [ata](https://maccieee.atabook.org/)
