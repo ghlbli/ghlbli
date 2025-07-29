@@ -5,7 +5,7 @@
 ![](https://komarev.com/ghpvc/?username=SIILENThill&color=78d6b8&label=✧)
 
 
-<p align="center"> <img width="390" src="https://i.pinimg.com/736x/bb/17/6c/bb176ca99725cf359c6f27de9de7d713.jpg"/>
+<p align="center"> <img width="390" src="https://i.pinimg.com/originals/93/24/bc/9324bccd92d6d2def1bedeee8c6dce11.gif"/>
 
 
 
