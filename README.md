@@ -2,8 +2,8 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=ghlbli&base=1250&color=DD9D9D&label=•ﻌ•)
+![](https://komarev.com/ghpvc/?username=ghlbli&base=1250&color=875c6a&label=•ﻌ•)
 
 
-<p align="center"> <img width="390" src="https://i.postimg.cc/vBjPd3Lb/f165479558001df2f9b0d81ab219e2bb-Photoroom.png"/>
+<p align="center"> <img width="390" src="https://i.postimg.cc/x1N8cMgH/download-2.png"/>
 
